@@ -5,4 +5,5 @@
 - a bit shy when first meet - longer funny..⁎
 - birthday is january 14!!
 <!--- ⏖ int c+h,DNTUF - loves friends*..
-˖𓍢ִ໋⋆ roblox,pt more idk, pookie? idk-
+˖𓍢roblox,pt more idk
+did i have wife/husband? - no i dont.
