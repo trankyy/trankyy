@@ -3,6 +3,6 @@
 - ⌜love listen to music!1!! - from in vietnam⌝
 - a bit shy when first meet - longer funny..⁎
 - birthday is january 14!!
-<!--- ⏖ int free c+h- i loves make friends*..
+- !--- ⏖ int free c+h- i loves make friends*..
 ˖𓍢roblox,pt more idk
-did i have wife/husband? - idk i have one hs
+
